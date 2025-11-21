@@ -1,5 +1,5 @@
 
-Hi there, I'm Izabela Reis! 👋  
+Hi there, I'm Izabela Reis 👋  
 📱 iOS Developer  
 🇧🇷 Born in Brazil  
 
